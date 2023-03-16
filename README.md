@@ -6,6 +6,7 @@
 
 ## Personal data
 
+- 10/19/2001
 
 - Vitor Nunes da Silva
 - Contatos
