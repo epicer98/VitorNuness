@@ -1,5 +1,8 @@
 ### Hi there 👋
 
+https://www.linkedin.com/in/vitor-nunes-da-silva-234ab3186/
+
+
 <!--
 **VitorNuness/VitorNuness** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
