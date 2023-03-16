@@ -8,6 +8,7 @@
 
 - Financial Assistant - **Tauste Supermercados Ltda** _since November 2021_
 - Cashier - **Tauste Supermercados Ltda** _since April 2020 to October 2021_
+- Packer - **Tauste Supermercados Ltda** _since January 2020 to March 2020_
 
 - Vitor Nunes da Silva
 - Contatos
