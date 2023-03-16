@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 https://www.linkedin.com/in/vitor-nunes-da-silva-234ab3186/
-https://www.linkedin.com/in/vitor-nunes-da-silva-234ab3186/
+https://www.instagram.com/inuness01/
 vitor1nuness@gmail.com
 
 
