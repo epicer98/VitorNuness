@@ -8,6 +8,7 @@
 
 - 10/19/2001
 - Single
+- Financial assistant
 
 
 - Vitor Nunes da Silva
