@@ -7,6 +7,8 @@
 ## Personal data
 
 - 10/19/2001
+- Single
+
 
 - Vitor Nunes da Silva
 - Contatos
