@@ -1,5 +1,11 @@
 ### Hi there 👋
 
+- Vitor Nunes da Silva
+- Contatos
+- Nascimento
+- Trabalho atual
+- Ensino
+- Quem sou eu
 
 
 
