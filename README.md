@@ -6,6 +6,7 @@
 
 ## Experience
 
+- Financial Assistant - **Tauste Supermercados Ltda** _since November 2021_
 
 - Vitor Nunes da Silva
 - Contatos
