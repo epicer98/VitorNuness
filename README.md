@@ -11,15 +11,6 @@
 - Cashier - **Tauste Supermercados Ltda** _since April 2020 to October 2021_
 - Packer - **Tauste Supermercados Ltda** _since January 2020 to March 2020_
 
-- Vitor Nunes da Silva
-- Contatos
-- Nascimento
-- Trabalho atual
-- Ensino
-- Quem sou eu
-
-
-
 <!--
 **VitorNuness/VitorNuness** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
