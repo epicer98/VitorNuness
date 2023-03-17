@@ -1,18 +1,4 @@
 ### Hi there 👋
----
-##### My name is,
-
-# VITOR NUNES DA SILVA
-
-
-- Vitor Nunes da Silva
-- Contatos
-- Nascimento
-- Trabalho atual
-- Ensino
-- Quem sou eu
-
-
 
 <!--
 **VitorNuness/VitorNuness** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
